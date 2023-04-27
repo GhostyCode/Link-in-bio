@@ -1,4 +1,4 @@
-Link-in-bio for GhostCode👻⌨
+Link-in-bio for GhostyCode👻⌨️
 ===========================
 
 https://links-santander.onrender.com/
